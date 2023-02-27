@@ -1,3 +1,4 @@
+[Politician-Blank-CV-Download.docx](https://github.com/Okerekeinno6/About-me/files/10837823/Politician-Blank-CV-Download.docx)
 # Okereke profile
 
 #Emerging Technology Writer | C, Javascript, Python | ALX software engineering student
